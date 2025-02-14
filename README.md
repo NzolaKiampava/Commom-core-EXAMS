@@ -1,1 +1,0 @@
-All commom core Exams
